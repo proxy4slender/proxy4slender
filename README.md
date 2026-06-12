@@ -4,3 +4,5 @@
 
 ⠀⠀<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/55a42208-068b-4dd4-ae58-d1cf642645b0" />   ⠀⠀[01](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?usp=drivesdk) 𓈒⠀⠀⠀[02](https://www.roblox.com/users/649511688/profile) 𓈒⠀⠀⠀[03](https://prxy4slender.itch.io/) 𓈒
 
+<img width="317" height="70" alt="Image" src="https://github.com/user-attachments/assets/7d419311-3931-4d95-bf0c-425e4aaf9eee" />
+hi i go by astrix or jest, but u can call me oculus 2 (i severely require moots)
