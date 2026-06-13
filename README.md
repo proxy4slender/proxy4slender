@@ -8,16 +8,18 @@
 
 <img width="768" height="172" alt="Image" src="https://github.com/user-attachments/assets/ffa6f29d-0c53-43ec-83a0-906abcf0d323" />
 
-      dni list i block freely
-     -13 and 18+,‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ 
-    sebaciel shippers,‎ ‎ ‎ ‎ ‎ 
-     rcta community,‎ ‎ ‎ ‎ ‎ ‎ 
-     israel/us fans,‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-      britian fans,‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-       furry anti,‎ ‎ ‎ ‎ ‎ ‎ 
-       iran anti,‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-       #shedtwt,‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-       zionsts,‎ ‎ ‎ ‎ ‎ ‎
 
-‎ ‎ 
+  
+    dni list i block freely :/
+-13 and 17+,‎ ‎sebaciel shippers,‎ rcta community,‎ ‎israel/us fans,‎ ‎britian fans,‎ ‎furry antis,‎ iran antis,‎ ‎#shedtwt,‎ ‎nsfw
+
+
+
+<img width="2048" height="312" alt="Image" src="https://github.com/user-attachments/assets/ef12447b-0768-4d16-b86c-83b2bfb417c9" />
+
+
+    super cool interests of mine
+adventure time, the cult family, slenderverse, creepypasta, salad fingers, black butler, gravity falls, hetalia, pmmm, dhmis, fnaf
+mlp, lost media, args, emh, mh, roblox, cats :3
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <img width="317" height="70" alt="Image" src="https://github.com/user-attachments/assets/7d419311-3931-4d95-bf0c-425e4aaf9eee" />
