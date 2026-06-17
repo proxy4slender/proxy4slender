@@ -15,15 +15,15 @@
 <img width="1000" height="100" alt="Image" src="https://github.com/user-attachments/assets/ffa6f29d-0c53-43ec-83a0-906abcf0d323" />
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎                                        ‎ㅤㅤㅤㅤㅤdni list i block freely :/
   
-‎-13 and 17+,‎ ‎sebaciel shippers,‎ 
-rcta community,‎ ‎israel/us fans,‎
-‎britian fans,‎ ‎furry antis,‎ iran antis,‎ ‎#shedtwt,‎ ‎nsfw
+‎anyone -13 or 17+,‎ ‎sebaciel shippers,‎ 
+rcta community,‎ ‎israel/usa supporters,‎
+‎britian supporters,‎ ‎furry antis,‎ iran antis,‎ ‎#shedtwt,‎ ‎nsfw, loli/shotacons, sxual / r4pe joke makers, if ur here 2 tell me slender isnt real
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <img width="2048" height="200" alt="Image" src="https://github.com/user-attachments/assets/ef12447b-0768-4d16-b86c-83b2bfb417c9" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤsuper cool interests of mine
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
-adventure time, the cult family, ‎slenderverse, creepypasta, lost media, args, black butler, gravity‎falls, hetalia, madoka, dhmis, emh, mh, slenderman, geography, poltics, animals, mlp, ponytown, football, the stanley parable, cultures,
+adventure time, the cult family, ‎slenderverse, creepypasta, lost media, args, black butler, gravity‎falls, hetalia, madoka, dhmis, emh, mh, slenderman, geography, poltics, animals, mlp, ponytown, football, the stanley parable, cultures, sml,
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <img width="1000" height="100" alt="Image" src="https://github.com/user-attachments/assets/7d419311-3931-4d95-bf0c-425e4aaf9eee" />
