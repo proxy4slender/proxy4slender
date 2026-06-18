@@ -17,13 +17,13 @@
   
 ‎anyone -13 or 17+,‎ ‎sebaciel shippers,‎ 
 rcta community,‎ ‎israel/usa supporters,‎
-‎britian supporters,‎ ‎furry antis,‎ iran antis,‎ ‎#shedtwt,‎ ‎nsfw, loli/shotacons, sxual/r4pe joke makers, if ur just here 2 dimiss my conspiarcies or say slendr isnt real
+‎britian supporters,‎ ‎furry antis,‎ iran antis,‎ ‎#shedtwt,‎ ‎nsfw, loli/shotacons, if ur just here 2 dismiss my conspiarcies or say slendr isnt real (he very much is)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <img width="1000" height="49" alt="Image" src="https://github.com/user-attachments/assets/c5790942-b248-4aca-bfdd-3c2cb198e46e" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤsuper cool interests of mine
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
-adventure time, the cult family, ‎slenderverse, creepypasta, lost media, args, black butler, gravity‎falls, hetalia, madoka, dhmis, emh, mh, slenderman, geography, poltics, animals, mlp, ponytown, football, the stanley parable, cultures, sml,
+adventure time, the cult family, ‎slenderverse, creepypasta, lost media, args, black butler, gravity‎falls, hetalia, madoka, dhmis, emh, mh, slenderman, geography, animals, mlp, ponytown, football, the stanley parable, sml, htf, smiling friends
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <img width="1000" height="100" alt="Image" src="https://github.com/user-attachments/assets/ffa6f29d-0c53-43ec-83a0-906abcf0d323" />
