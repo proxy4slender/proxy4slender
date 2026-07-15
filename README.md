@@ -17,7 +17,7 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 <summary>bfyi</summary>
 
-i admit i am not the most empathetic person, please refrain from venting 2 me unless we're close<br>
+not the most empathetic person here please refrain from venting 2 me unless we're close<br>
 
 i hide people without issue i might even hide if you slightly irritate me or wear a skin from a franchise i dislike<br>
 
@@ -55,7 +55,7 @@ eng + my native  and sum failed duolingo classes
 
 mainly titled as bonnie  astrix ‎ prxy and ocyls‎
 
-currently 5teen + any or no pronoun prefered 
+currently 5teen +  no pronoun preferred thank u 
 
 
 </details>
