@@ -77,9 +77,17 @@ dan vs
 
 ‎</details>
 
-<img width="231" height="50" alt="Image" src="https://github.com/user-attachments/assets/6dca3dd2-c201-4760-93cd-43247e6bd02a" />
+<img width="231" height="50" alt="Image" src="https://github.com/user-attachments/assets/6dca3dd2-c201-4760-93cd-43247e6bd02a" /> <br>
+
+<br>
 
 
-some stamps.
 
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cd4d3304-0b05-4b0a-8fa3-d03305718fbc" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9df14a47-d33b-47a1-b10e-a85adb0e095c" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2408b72e-15cb-42bd-8387-035f1ec0d754" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/845a373f-ca3f-4f03-806f-a5c96507a493" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8d98b992-3f5b-4916-a983-9474d82c0ef8" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c440b1ab-e2c4-4489-9dd4-d328cc17321b" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6abcf759-1ec8-4c15-a513-f4c14726c798" />
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎                                        ‎ㅤ
