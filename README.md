@@ -1,8 +1,12 @@
-    stranger things than death can happen 2 lab ratgirls and pretty white rabbits  .
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    
-<img width="1000" height="49" alt="Image" src="https://github.com/user-attachments/assets/c5790942-b248-4aca-bfdd-3c2cb198e46e" />
-‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-HEAVILY wip read me!  astrix , ocyls , prxy , bonnie
+divider 
 
-he / any ,  
+*stranger things than death can happen 2 lab ratgirls and pretty white rabbits* .
+
+divider 
+‎
+astrix ‎ ‎ocyls‎‎  ‎prxy ‎ bonn ‎ ‎ ‎any or no pronoun 
+‎
+
+pb fickin (still searching 4 better terms)‎ ‎  c+h enc  w2i ‎ mstly offtab ‎ ‎ 
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎                                        ‎ㅤ
