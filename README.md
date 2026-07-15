@@ -1,3 +1,7 @@
+[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fproxy4slender&label=VISITORS&countColor=%23263759)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fproxy4slender)
+
+<br>
+
 <img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/0ae440f3-d15a-40ea-b5fd-493c691a7271" />
 
 lets go in the garden, you'll find something waiting, right there where you left it
