@@ -48,8 +48,6 @@ consistent nsfw joke conductors specifically 🍇
 
 eng + my native  and sum failed duolingo classes 
 
-iwcaution or dniud  c+h enc  w2i ‎ mstly offtab
-
 mainly titled as bonnie  astrix ‎ prxy and ocyls‎
 
 currently 5teen + any or no pronoun prefered 
