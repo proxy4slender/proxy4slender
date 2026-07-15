@@ -4,6 +4,11 @@
 
 <img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/0ae440f3-d15a-40ea-b5fd-493c691a7271" />
 
+
+[ata](https://proxy4slender.atabook.org/) [carrd](https://proxy4slender.carrd.co/) [ao3](https://archiveofourown.org/users/proxy4slender)
+
+</pre>
+
 lets go in the garden, you'll find something waiting, right there where you left it
 
 </details>
