@@ -5,7 +5,7 @@
 <img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/0ae440f3-d15a-40ea-b5fd-493c691a7271" />
 
 
-[ata](https://proxy4slender.atabook.org/) [carrd](https://proxy4slender.carrd.co/) [ao3](https://archiveofourown.org/users/proxy4slender)
+[ata](https://proxy4slender.atabook.org/) [carrd](https://proxy4slender.carrd.co/) [ao3](https://archiveofourown.org/users/proxy4slender) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderversedoc](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [pin](https://www.pinterest.com/proxy4slender/) [roblox](https://www.roblox.com/users/649511688/profile?friendshipSourceType=PlayerSearch)
 
 </pre>
 
@@ -25,7 +25,7 @@ for the most part i can at least sympatheize with your situation but it depends,
 
 it is difficult for me to maintain companionship and feel attached toward indivduals ive never met outside the internet and the concept of "friendship" is rather confusing to grasp for oneself,
 
-further more, i am insensitized to most morally grey topics that various people might opinionate heavily on, i will not bash at you for any belief that may be considered immoral, that however does not mean i, in any way or more support the awful things i consume through media <br>
+further more, i am insensitized to most morally grey topics that various people might opinionate heavily on, i will not bash  you for any specific belief that may be considered immoral, that however does not mean i, in any way or more support the awful things i consume through media <br>
 
 </details>
 
@@ -34,8 +34,6 @@ further more, i am insensitized to most morally grey topics that various people 
 
 <summary>dni-list</summary>
 
--13<br>
-17+<br>
 iran antis<br>
 pro israel<br>
 pro america<br>
@@ -43,6 +41,11 @@ palestine antis<br>
 pro colonization<br>
 basic criteria (ableist rcist, etc)<br>
 consistent nsfw joke conductors specifically 🍇 
+
+iwcaution if youre on here:<br>
+anyone under 13 or over 17<br>
+the roblox myth community<br>
+specifically districts forces<br>
 
 </details>
 
