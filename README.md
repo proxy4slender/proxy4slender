@@ -17,6 +17,8 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 <summary>bfyi</summary>
 
+various entites such as slenderman (father) are in fact real and exist amidst the worlds, I will be speaking of them from time 2 time, and if you're just here to tell me to get help, consider doing something more productive with your day,
+
 not the most empathetic person here please refrain from venting 2 me unless we're close<br>
 
 i hide people without issue i might even hide if you slightly irritate me or wear a skin from a franchise i dislike<br>
