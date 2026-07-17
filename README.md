@@ -24,10 +24,6 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 <summary>bfyi</summary>
 
-various entites such as slenderman (father) are in fact real and exist amidst the worlds, I will be speaking of them from time 2 time, and if you're just here to tell me to get help, consider doing something more productive with your day,
-
-not the most empathetic person here please refrain from venting 2 me unless we're close<br>
-
 i hide people without issue i might even hide if you slightly irritate me or wear a skin from a franchise i dislike<br>
 
 for the most part i can at least sympatheize with your situation but it depends, plus i do not gain anything from helping you directly, it is not my duty i am no professional therapist please seek someone else<br>
@@ -54,7 +50,7 @@ consistent nsfw joke conductors specifically 🍇
 iwcaution if youre on here:<br>
 anyone under 13 or over 17<br>
 the roblox myth community<br>
-specifically districts forces<br>
+specifically district forces<br>
 
 </details>
 
@@ -65,9 +61,9 @@ specifically districts forces<br>
 
 eng + my native  and sum failed duolingo classes 
 
-mainly titled as bonnie  astrix ‎ prxy and ocyls‎
+mainly known as astrix  prxy and ocyls‎
 
-currently 5teen +  no pronoun preferred thank u 
+5teen + no pronoun preferred use names
 
 
 </details>
