@@ -2,6 +2,14 @@
 
 <br>
 
+me and slendy :-D !!! 
+<br>
+<br>
+<img width="610" height="351" alt="Image" src="https://github.com/user-attachments/assets/6690e863-5d03-4021-b6f8-94f148746ea9" />
+<br> <br> ୨୧ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔♡⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ୨୧ 
+
+<br>
+
 <img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/0ae440f3-d15a-40ea-b5fd-493c691a7271" />
 
 
