@@ -1,5 +1,4 @@
-[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fproxy4slender&label=VISITORS&countColor=%23263759)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fproxy4slender)
-
+![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
 me and slendy :-D !!! 
