@@ -21,13 +21,13 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 <summary>bfyi</summary>
 
-i hide people without issue i might even hide if you slightly irritate me or wear a skin from a franchise i dislike<br>
-
 for the most part i can at least sympatheize with your situation but it depends, plus i do not gain anything from helping you directly, it is not my duty i am no professional therapist please seek someone else<br>
 
-it is difficult for me to maintain companionship and feel attached toward indivduals ive never met outside the internet and the concept of "friendship" is rather confusing to grasp for oneself,
+Can't really feel as connected to my own interests as alot of other people can, there are two characters that truly describe my very being, the first one being bubblegum and the other one being Dan from Dan vs, Im not sure if im a kin or something, I just identify as them from time to time, albeit I have no "dbls dni" on this stuff, 
 
-further more, i am insensitized to most morally grey topics that various people might opinionate heavily on, i will not bash  you for any specific belief that may be considered immoral, that however does not mean i, in any way or more support the awful things i consume through media <br>
+it is difficult for me to maintain companionship and feel attached toward indivduals ive never met outside the internet and the concept of "friendship" is rather confusing to grasp for oneself, also i hide people without issue i might even hide if you annoy me or wear a skin from a franchise i mildly dislike
+
+further more, i am insensitized to most morally grey topics that various people might opinionate heavily on, i will not bash you for any specific thing that may be considered immoral or generally alien amongst most communities (proships 4 exmple) that however does not mean i, in any way or more support the awful things i consume through media <br>
 
 </details>
 
