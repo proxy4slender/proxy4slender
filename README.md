@@ -1,19 +1,18 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
+lets go in the garden, you'll find something waiting, right there where you left it
 
-<br> <br> ୨୧ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔♡⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ୨୧ 
-
+<img width="740" height="200" alt="Image" src="https://github.com/user-attachments/assets/e1103cb7-1c57-43d0-8daa-4dbaf86b06f5" />
 <br>
 
-<img width="700" height="700" alt="Image" src="https://github.com/user-attachments/assets/0ae440f3-d15a-40ea-b5fd-493c691a7271" />
+
 
 
 [ata](https://proxy4slender.atabook.org/) [ao3](https://archiveofourown.org/users/proxy4slender) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderversedoc](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [pin](https://www.pinterest.com/proxy4slender/) [roblox](https://www.roblox.com/users/649511688/profile?friendshipSourceType=PlayerSearch)
 
 </pre>
 
-lets go in the garden, you'll find something waiting, right there where you left it
 
 </details>
 
@@ -51,19 +50,6 @@ specifically district forces<br>
 
 </details>
 
-
-<details>
-
-<summary>intro</summary>
-
-eng + my native  and sum failed duolingo classes 
-
-mainly known as astrix  prxy and ocyls‎
-
-5teen + no pronoun preferred use names
-
-
-</details>
 
 <details>
 
