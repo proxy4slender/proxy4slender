@@ -20,36 +20,13 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 <summary>bfyi</summary>
 
-for the most part i can at least sympatheize with your situation but it depends, plus i do not gain anything from helping you directly, it is not my duty i am no professional therapist please seek someone else<br>
+One has no dni-list and shall freely block any indidvual that agitates/offends oneself on sight <br>
 
-Can't really feel as connected to my own interests as alot of other people can, there are two characters that truly describe my very being, the first one being bubblegum and the other one being Dan from Dan vs, Im not sure if im a kin or something, I just identify as them from time to time, albeit I have no "dbls dni" on this stuff, 
+One is generally insensitized to most morally grey dynamics and does not believe in the 'proship/darkship/comship' alignment(s), there is no such thing, it is all merely fiction that certain sensitive fellows on the internet do not understand and disregard as something heinous, UNLESS the person actively supports the acts, one shall NOT be discriminating against the community, however this does not mean oneself, in any way or more support the awful things one consumes through media <br>
 
-it is difficult for me to maintain companionship and feel attached toward indivduals ive never met outside the internet and the concept of "friendship" is rather confusing to grasp for oneself, also i hide people without issue i might even hide if you annoy me or wear a skin from a franchise i mildly dislike
-
-further more, i am insensitized to most morally grey topics that various people might opinionate heavily on, i will not bash you for any specific thing that may be considered immoral or generally alien amongst most communities (proships 4 exmple) that however does not mean i, in any way or more support the awful things i consume through media <br>
+Not empathetic, please consider venting to someone else, one wields no interest in meaningless therapy sessions, plus there can be a lot of issues getting 'attached' 2 people one meets on the internet, one might consider you "fascinating" however that is as far as the boat of friendship goes with oneself, again one really does not understand the concept of companionship beyond conversation
 
 </details>
-
-
-<details>
-
-<summary>dni-list</summary>
-
-iran antis<br>
-pro israel<br>
-pro america<br>
-palestine antis<br>
-pro colonization<br>
-basic criteria (ableist rcist, etc)<br>
-consistent nsfw joke conductors specifically 🍇 
-
-iwcaution if youre on here:<br>
-anyone under 13 or over 17<br>
-the roblox myth community<br>
-specifically district forces<br>
-
-</details>
-
 
 <details>
 
