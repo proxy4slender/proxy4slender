@@ -3,7 +3,8 @@
 
 lets go in the garden, you'll find something waiting, right there where you left it
 
-<img width="740" height="200" alt="Image" src="https://github.com/user-attachments/assets/e1103cb7-1c57-43d0-8daa-4dbaf86b06f5" />
+<img width="560" height="100" alt="Image" src="https://github.com/user-attachments/assets/5e141cb2-ecc4-488b-94b1-f3903a8e6e85" />
+
 <br>
 
 
