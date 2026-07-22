@@ -1,10 +1,10 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
-lets go in the garden, you'll find something waiting, right there where you left it
+They're coming to take me away, ha-haaa,
+They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 
-<img width="560" height="100" alt="Image" src="https://github.com/user-attachments/assets/5e141cb2-ecc4-488b-94b1-f3903a8e6e85" />
-
+<img width="700" height="200" alt="Image" src="https://github.com/user-attachments/assets/1747beb1-1bf8-4f17-b94e-928aa6ac8d05" />
 <br>
 
 
@@ -14,8 +14,7 @@ lets go in the garden, you'll find something waiting, right there where you left
 
 </pre>
 
-
-</details>
+<img width="700" height="100" alt="Image" src="https://github.com/user-attachments/assets/d1fc384b-672d-4acb-b0a7-050e3f3880d1" />
 
 <details>
 
@@ -55,17 +54,14 @@ jthm <br>
 
 ‎</details>
 
-<img width="231" height="50" alt="Image" src="https://github.com/user-attachments/assets/6dca3dd2-c201-4760-93cd-43247e6bd02a" /> <br>
-
 <br>
+<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/d8697030-6e7d-4d01-a539-2e46428f588c" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/7efcbdd2-4557-4f45-a31f-c01d62f87dc5" />
+<img width="95" height="56" alt="Image" src="https://github.com/user-attachments/assets/38c0acb1-e1c0-42c7-9227-52f6a2017e4a" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2ac786e4-64dd-42f4-9573-53728f42e371" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/da9d42de-4a2e-48f1-bc93-69cb49dff450" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/90171db8-8134-4976-8335-e8c9a49a06c7" />
+<img width="98" height="53" alt="Image" src="https://github.com/user-attachments/assets/56c0fb10-6c4d-4364-b5e6-c1756f6169f6" />
+<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
 
 
-
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cd4d3304-0b05-4b0a-8fa3-d03305718fbc" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9df14a47-d33b-47a1-b10e-a85adb0e095c" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2408b72e-15cb-42bd-8387-035f1ec0d754" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/845a373f-ca3f-4f03-806f-a5c96507a493" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8d98b992-3f5b-4916-a983-9474d82c0ef8" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c440b1ab-e2c4-4489-9dd4-d328cc17321b" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6abcf759-1ec8-4c15-a513-f4c14726c798" />
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎                                        ‎ㅤ
