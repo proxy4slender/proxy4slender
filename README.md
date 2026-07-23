@@ -4,13 +4,13 @@
 They're coming to take me away, ha-haaa,
 They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 
-<img width="700" height="200" alt="Image" src="https://github.com/user-attachments/assets/1747beb1-1bf8-4f17-b94e-928aa6ac8d05" />
+<img width="700" height="200" alt="Image" src="https://github.com/user-attachments/assets/1e9b120b-878e-4f22-af8e-bb977d391876" />
 <br>
 
 
 
 
-[ata](https://proxy4slender.atabook.org/) [ao3](https://archiveofourown.org/users/proxy4slender) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderversedoc](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
+[ata]([https://proxy4slender.atabook.org/](https://theyrecoming2takemeaway.atabook.org/)) [ao3](https://archiveofourown.org/users/proxy4slender) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
 
 </pre>
 
@@ -31,6 +31,7 @@ Not empathetic, please consider venting to someone else, one wields no interest 
 <summary>interests</summary>
 
 interests include but are not limited 2 : <br>
+circus in the sky
 the cult family  <br>
 everymanhybrid  <br>
 marble hornets  <br>
@@ -62,5 +63,3 @@ jthm <br>
 <img width="98" height="53" alt="Image" src="https://github.com/user-attachments/assets/56c0fb10-6c4d-4364-b5e6-c1756f6169f6" />
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
 <br>
-
-https://github.com/user-attachments/assets/685e0e6b-1975-4be5-93c3-a8d462b4ad8c
