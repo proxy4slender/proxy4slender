@@ -14,8 +14,6 @@ They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 
 </pre>
 
-<img width="700" height="100" alt="Image" src="https://github.com/user-attachments/assets/d1fc384b-672d-4acb-b0a7-050e3f3880d1" />
-
 <details>
 
 <summary>bfyi</summary>
@@ -63,5 +61,6 @@ jthm <br>
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/90171db8-8134-4976-8335-e8c9a49a06c7" />
 <img width="98" height="53" alt="Image" src="https://github.com/user-attachments/assets/56c0fb10-6c4d-4364-b5e6-c1756f6169f6" />
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
+<br>
 
-
+https://github.com/user-attachments/assets/685e0e6b-1975-4be5-93c3-a8d462b4ad8c
