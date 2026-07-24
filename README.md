@@ -10,7 +10,7 @@ They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 
 
 
-[ata](https://theyrecoming2takemeaway.atabook.org/) [ao3](https://archiveofourown.org/users/proxy4slender) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
+[ata](https://theyrecoming2takemeaway.atabook.org/) [ao3](https://archiveofourown.org/users/proxy4slender) [bsky](https://bsky.app/profile/proxy4slender.bsky.social) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
 
 </pre>
 
