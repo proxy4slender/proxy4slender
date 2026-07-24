@@ -53,6 +53,21 @@ jthm <br>
 
 ‎</details>
 
+<details>
+
+<summary>songs</summary>
+It's A Small World (creepy piano) - Myuu (2013)
+Raindrops keep falling on my head -  B. J. Thomas (1969)
+Living in the sunlight - Tiny Tim (1968)
+They're Coming to Take Me Away, Ha-Haaa! - Napoleon XIV (1966)
+The masochism tango -  Tom Lehrer (1959)
+Mr Sandman - The Chordettes (1954) 
+Jeepers creepers - Louis armstrong (1938)
+living in the sunlight - written by Al Sherman and Al Lewis (1930)
+
+</details>
+
+
 <br>
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/d8697030-6e7d-4d01-a539-2e46428f588c" />
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/7efcbdd2-4557-4f45-a31f-c01d62f87dc5" />
