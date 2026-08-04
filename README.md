@@ -10,15 +10,39 @@ NO DNI except creepydate players its kind of icky 2 me .
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
 <br>
-<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/d8697030-6e7d-4d01-a539-2e46428f588c" />
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/7efcbdd2-4557-4f45-a31f-c01d62f87dc5" />
-<img width="95" height="56" alt="Image" src="https://github.com/user-attachments/assets/38c0acb1-e1c0-42c7-9227-52f6a2017e4a" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2ac786e4-64dd-42f4-9573-53728f42e371" />
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/da9d42de-4a2e-48f1-bc93-69cb49dff450" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/90171db8-8134-4976-8335-e8c9a49a06c7" />
-<img width="98" height="53" alt="Image" src="https://github.com/user-attachments/assets/56c0fb10-6c4d-4364-b5e6-c1756f6169f6" />
-<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
-<br>
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/bc8979ad-e2cf-4835-ba6d-a179be285d76" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6b041763-87ba-4036-9026-0c9a5d8ee334" />
+<img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/09eeac45-8af2-4992-8b02-e1d8d8fef7bc" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/46fb408d-d8c8-43a5-9854-3681e5912850" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/02fc7ff2-f1ad-4e6c-b86b-d1d955afc22c" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e3dd12b6-b5d4-42ea-b1c9-a1e4b3c4c3b9" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5f52d82c-144b-476d-a110-2cfd62db688e" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/57dfaced-b6ac-4da1-8e7b-447da89a4b3f" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cefa9ec7-d52f-48d9-9563-5b3a7c130ec6" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fc45c280-b2f7-4606-9764-7976d504ffd3" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d75c9329-9bab-4471-9c74-6e04f3a42621" />
+<img width="99" height="62" alt="Image" src="https://github.com/user-attachments/assets/a924095f-d88d-414b-b64d-eec93c7069c6" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/5dc78ad1-695e-4f83-a84c-b04d555c2ad2" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7e745076-6a28-4739-9c74-8f3fd9c4c196" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3b3f9938-a322-4a71-a376-0b7d85654ea6" />
+
+
+
+
+
+
+
+
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1cdeceea-aa97-4ace-a4b9-b8e82a9fe910" />
+<img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/798f1fa8-41d8-41fb-bc3a-0980541ea5dd" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/db708785-d925-4e41-aa4b-8faf82372150" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/876f9d60-c9f9-4afe-b477-257483fdf7ac" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/7fafef56-a93f-4843-80d7-370aec4f5ef0" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/531b644f-a22c-4b71-b1eb-2a024eba0416" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6de9ab48-ff1c-40b5-9497-36b46f1d125c" />
+
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 people i'm planning EVIL schemes against: <br> 
 
