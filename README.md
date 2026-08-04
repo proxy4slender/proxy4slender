@@ -21,4 +21,6 @@ SUPER IMPORTANT!!!!!!!!! > [BILL CALLOUT POST](https://www.youtube.com/watch?v=Z
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
 <br>
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
-FREAKS mentionboard <br> [felixylixywoah] @bill-cipher @minossweetdove @Pwnatious
+people i'm planning EVIL schemes against: <br> 
+
+[felixylixywoah](https://github.com/felixylixywoah) [bill-cipher](https://github.com/biII-cipher) [minossweetdove](https://github.com/minossweetdove) [Pwnatious](https://github.com/Pwnatious)
