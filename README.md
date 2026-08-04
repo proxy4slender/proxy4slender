@@ -2,8 +2,7 @@
 <br>
 
 
-SUPER IMPORTANT!!!!!!!!! > [BILL CALLOUT POST](https://www.youtube.com/watch?v=ZUGq4Xl-fDk)
-
+NO DNI except creepydate players its kind of icky 2 me .
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
 [yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) 
