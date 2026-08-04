@@ -1,7 +1,6 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
-@bill-cipher
 
 [BILL CALLOUT POST](https://www.youtube.com/watch?v=ZUGq4Xl-fDk)
 They're coming to take me away, ha-haaa,
@@ -15,42 +14,8 @@ They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 [yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) (HEAVY WIP BTW.) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
 
 
-<details>
 
-<summary>interests</summary>
 
-interests include but are not limited 2 : <br>
-circus in the sky
-the cult family  <br>
-everymanhybrid  <br>
-marble hornets  <br>
-adventure time  <br>
-salad fingers  <br>
-grossery gang  <br>
-countryhumans  <br>
-cookieswirlc  <br>
-slenderverse  <br> 
-invader zim <br>
-creepypasta <br>
-shopkins  <br>
-hetalia  <br>
-dan vs  <br>
-
-‎</details>
-
-<details>
-
-<summary>songs</summary>
-It's A Small World (creepy piano) - Myuu (2013) <br>
-Raindrops keep falling on my head -  B. J. Thomas (1969)  <br>
-Living in the sunlight - Tiny Tim (1968)  <br>
-They're Coming to Take Me Away, Ha-Haaa! - Napoleon XIV (1966)  <br>
-The masochism tango -  Tom Lehrer (1959)  <br>
-Mr Sandman - The Chordettes (1954)  <br>
-Jeepers creepers - Louis armstrong (1938)  <br>
-living in the sunlight - written by Al Sherman and Al Lewis (1930)  <br>
-
-</details>
 
 
 <br>
