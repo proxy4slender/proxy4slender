@@ -2,21 +2,13 @@
 <br>
 
 
-[BILL CALLOUT POST](https://www.youtube.com/watch?v=ZUGq4Xl-fDk)
-They're coming to take me away, ha-haaa,
-They're coming to take me away, ho-ho, hee-hee, ha-haaa.
+SUPER IMPORTANT!!!!!!!!! > [BILL CALLOUT POST](https://www.youtube.com/watch?v=ZUGq4Xl-fDk)
 
-<br>
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
+[yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) 
 
-
-
-[yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) (HEAVY WIP BTW.) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) [stamps&userbxes](https://github.com/proxy4slender/graphs) 
-
-
-
-
-
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
 <br>
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/d8697030-6e7d-4d01-a539-2e46428f588c" />
@@ -28,3 +20,5 @@ They're coming to take me away, ho-ho, hee-hee, ha-haaa.
 <img width="98" height="53" alt="Image" src="https://github.com/user-attachments/assets/56c0fb10-6c4d-4364-b5e6-c1756f6169f6" />
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/e7e9692f-7e32-4a4e-9cc0-f4bff2a851a0" />
 <br>
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
+FREAKS mentionboard <br> [felixylixywoah] @bill-cipher @minossweetdove @Pwnatious
