@@ -3,11 +3,10 @@
 
 
 NO DNI except creepydate players its kind of icky 2 me .
-︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
+<img width="600" height="100" alt="Image" src="https://github.com/user-attachments/assets/052bb3c9-fec8-4cb0-8783-bbedbb353658" />
 
 [yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) 
 
-︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
 <br>
 
@@ -26,15 +25,6 @@ NO DNI except creepydate players its kind of icky 2 me .
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/5dc78ad1-695e-4f83-a84c-b04d555c2ad2" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7e745076-6a28-4739-9c74-8f3fd9c4c196" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3b3f9938-a322-4a71-a376-0b7d85654ea6" />
-
-
-
-
-
-
-
-
-
 <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1cdeceea-aa97-4ace-a4b9-b8e82a9fe910" />
 <img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/798f1fa8-41d8-41fb-bc3a-0980541ea5dd" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/db708785-d925-4e41-aa4b-8faf82372150" />
@@ -43,7 +33,8 @@ NO DNI except creepydate players its kind of icky 2 me .
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/531b644f-a22c-4b71-b1eb-2a024eba0416" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6de9ab48-ff1c-40b5-9497-36b46f1d125c" />
 
-︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
+<br>
+
 people i'm planning EVIL schemes against: <br> 
 
 [felixylixywoah](https://github.com/felixylixywoah) [bill-cipher](https://github.com/biII-cipher) [minossweetdove](https://github.com/minossweetdove) [Pwnatious](https://github.com/Pwnatious)
