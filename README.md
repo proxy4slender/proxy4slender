@@ -1,6 +1,7 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
+[CLICK HERE TO ENTER HELL](https://www.youtube.com/watch?v=4v7kOj_i4VE)
 
 <img width="530" height="11" alt="Image" src="https://github.com/user-attachments/assets/d80828a6-a451-4ef3-8e73-99942268bccf" />
 
