@@ -3,11 +3,11 @@
 
 [CLICK HERE TO ENTER HELL](https://www.youtube.com/watch?v=4v7kOj_i4VE)
 
-<img width="530" height="11" alt="Image" src="https://github.com/user-attachments/assets/d80828a6-a451-4ef3-8e73-99942268bccf" />
+<img width="600" height="11" alt="Image" src="https://github.com/user-attachments/assets/d80828a6-a451-4ef3-8e73-99942268bccf" />
 
-[yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) <br>
+[yt](https://www.youtube.com/@proxy4slender) [ata](https://theyrecoming2takemeaway.atabook.org/) [straw](https://proxy4slender.straw.page/) [ao3](https://archiveofourown.org/users/proxy4slender) [mythcommunitydocument](https://docs.google.com/document/d/1sJy4Cf6ncewxgXrTXa3Iw3gs8QvP0AgT5l6oJPoh0v4/edit?tab=t.0) [slendergrphs](https://github.com/proxy4slender/slenderverse-/tree/main) [slenderserieslist](https://docs.google.com/document/d/1KKd1BAdYOgxjAtelv1s6Ai1Lw9crTqazdP6sX8McZ5k/edit?tab=t.0) <br> <img width="200" height="236" alt="Image" src="https://github.com/user-attachments/assets/7eb7fdcb-c336-435d-bc99-28b6a14caf43" />  <img width="200" height="236" alt="Image" src="https://github.com/user-attachments/assets/7eb7fdcb-c336-435d-bc99-28b6a14caf43" />  <img width="200" height="236" alt="Image" src="https://github.com/user-attachments/assets/7eb7fdcb-c336-435d-bc99-28b6a14caf43" />  
 <br>
-<img width="532" height="24" alt="Image" src="https://github.com/user-attachments/assets/fe4aab23-4153-4728-b6ce-3ada576a6fb9" />
+<img width="600" height="24" alt="Image" src="https://github.com/user-attachments/assets/fe4aab23-4153-4728-b6ce-3ada576a6fb9" />
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/bc8979ad-e2cf-4835-ba6d-a179be285d76" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6b041763-87ba-4036-9026-0c9a5d8ee334" />
