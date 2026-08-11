@@ -1,7 +1,7 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
-[@proxy4slender is Otherworldly_Night from The Night Coalition](https://github.com/charactersofpt)
+[@proxy4slender is Otherworldly_Night from The Night Coalition](https://github.com/charactersofpt) <br>
 [@proxy4slender IS FOLKTOWN'S OTHERWORLDLY_NIGHT](https://github.com/FOLKTOWN)
 
 
