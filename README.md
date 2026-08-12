@@ -1,9 +1,9 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=proxy4slender&label=ENEMIES%20&labelColor=%23fad9e5&countColor=%23de7ea7)
 <br>
 
-[@proxy4slender is Otherworldly_Night from The Night Coalition](https://github.com/charactersofpt) <br>
+"proxy4slender is the otherworldly_night of ponytown"
 <br>
-[@proxy4slender IS FOLKTOWN'S OTHERWORLDLY_NIGHT](https://github.com/FOLKTOWN)
+[charactersofpt](https://github.com/charactersofpt) [folktown](https://github.com/FOLKTOWN)
 
 
 <img width="600" height="11" alt="Image" src="https://github.com/user-attachments/assets/d80828a6-a451-4ef3-8e73-99942268bccf" />
@@ -22,9 +22,11 @@
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4f2970dc-f53d-4ce1-a54b-757b10275df3" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fb1c5ebc-0299-4031-8377-61f212c9484c" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b8f6a742-3f9b-4b42-93d7-b7b495cd47fa" />
-
 <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1cdeceea-aa97-4ace-a4b9-b8e82a9fe910" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6de9ab48-ff1c-40b5-9497-36b46f1d125c" /> <br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6de9ab48-ff1c-40b5-9497-36b46f1d125c" /> 
+<img width="99" height="56" alt="stopkosastamp" src="https://github.com/user-attachments/assets/5db27796-7197-4a16-b622-738efcb3cb63" />
+<img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/68011734-316b-4821-9718-aa2240692f15" />
+
 
 <br>
 
